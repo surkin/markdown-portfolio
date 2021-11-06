@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I am a **polite** and **optimistic** person. Love to _share_ my broad *knowledge* with others and **learn** new things. _People tend to say I have a **good sense of humour**_
